@@ -1,4 +1,4 @@
-## Hi there 👋 I am Sachin Grewal
+## Hi there I am Sachin Grewal
 
 #### About me
 
